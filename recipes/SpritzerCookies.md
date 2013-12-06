@@ -1,4 +1,4 @@
-=Spritzer cookies=
+# Spritzer cookies #
 
 * Butter
 * Sugar
