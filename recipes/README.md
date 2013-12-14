@@ -1,3 +1,4 @@
 # Recipe Index
 
-* Spritz cookies - Eugene
+* Spritz cookies  - Eugene
+* Peppermint bark - Rodney Brown
