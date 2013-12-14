@@ -4,6 +4,7 @@
 * 2 pounds white chocolate chip morsals
 * 1 tsp (or to taste) peppermint extract
 
+
 1. Place candy canes (removed from packaging and unwrapped) in a large freezer bag and seal the bag.  Using hammer or mallet, crush candy canes into smaller pieces and set aside.
 
 2. Line a cookie sheet with waxed paper or other non-stick baking sheet liner.
