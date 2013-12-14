@@ -1,6 +1,6 @@
 # Peppermint Bark #
 
-* 1 cup cane pieces (see step 1)
+* 1 cup candy cane pieces (see step 1)
 * 2 pounds white chocolate chip morsals
 * 1 tsp (or to taste) peppermint extract
 
