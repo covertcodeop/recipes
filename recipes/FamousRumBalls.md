@@ -1,5 +1,7 @@
 # Famouse Chocolate Rum Balls #
 
+## Ingredients
+
 * 3 1/4 cups vanilla wafers
 * 3/4 cup confectioner's sugar
 * 1/4 cup unsweetened cocoa powder
@@ -7,10 +9,12 @@
 * 3 tablespoons light corn syrup
 * 2/3 cup rum
 
-Crush vanilla wafers. Placing them in a zip bag, with air mostly removed and smashing with your fists is one way to crush the vanilla wafers. Be creative, they are your Rum Balls.
+## Directions
 
-Find a large bowl. Mix together the newly crushed vanilla wafers, confectioner's sugar, cocoa, and your [optional] nuts. Take a shot to verify Rum has not expired. Blend in rum and corn syrup.
+1. Crush vanilla wafers. Placing them in a zip bag, with air mostly removed and smashing with your fists is one way to crush the vanilla wafers. Be creative, they are your Rum Balls.
 
-Shape into balls of desired size. Roll in additional confectioner's sugar otherwise they will never leave your hands. Place in airtight container with additional confectioner's sugar and chill in refrigerator. 
+1. Find a large bowl. Mix together the newly crushed vanilla wafers, confectioner's sugar, cocoa, and your [optional] nuts. Take a shot to verify Rum has not expired. Blend in rum and corn syrup.
 
-People say to leave them for several days. Don't do this. Serve them after they are suitably chilled. If there's a flush in the cheeks while eating the rum balls declare your batch a success. Eat Rum Balls responsibly. 
+1. Shape into balls of desired size. Roll in additional confectioner's sugar otherwise they will never leave your hands. Place in airtight container with additional confectioner's sugar and chill in refrigerator. 
+
+1. People say to leave them for several days. Don't do this. Serve them after they are suitably chilled. If there's a flush in the cheeks while eating the rum balls declare your batch a success. Eat Rum Balls responsibly. 
